@@ -8,7 +8,8 @@
 
 ![image](https://github.com/ajayvijay9929/NoteTaker/assets/120326151/4577e786-65ea-4208-98b8-21c4684aa27c)
 
-![image](https://github.com/ajayvijay9929/NoteTaker/assets/120326151/34933b58-4105-4fe7-8c76-c91f92bd3350)
+![image](https://github.com/ajayvijay9929/NoteTaker/assets/120326151/1e8da2ed-f485-422e-8227-e4022b054c39)
+
 
 
 ![image](https://github.com/ajayvijay9929/NoteTaker/assets/120326151/01318687-3e28-4ecd-8050-47063119b4cd)
